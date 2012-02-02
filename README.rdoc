@@ -1,0 +1,3 @@
+This is just a collection of recipes I make. Trying out version control for tracking them.
+
+Most came from a site or web posting or such but get modified over time.
