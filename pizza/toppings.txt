@@ -1,12 +1,23 @@
 Pizza Toppings
 
+
+Meats
+
 pepperoni
 sausage
 mushrooms
+
+
+Peppers
 bell pepper
 jalapenos
 olives
+
+Other
 artichoke hearts
 pre-cooked asaparagus
 anchoives
 garlic
+mango
+sweet potato
+potato
