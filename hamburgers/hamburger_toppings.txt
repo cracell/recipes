@@ -10,3 +10,5 @@ guacomole
 onion rings
 fries
 fried egg
+apple
+sprouts
