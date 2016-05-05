@@ -1,6 +1,5 @@
 Fried Okra
 
-ngredients:
 3/4 cup cornmeal
 3/4 cup flour
 1 teaspoon garlic powder
@@ -8,12 +7,13 @@ ngredients:
 1/4 teaspoon pepper
 1/2 cup buttermilk - add 1 tablespoon vinegar to a measuring cup, fill with milk to make 1/2 cup, let sit 5 minutes
 2 pounds okra, cut in 1/2 inch pieces
+1/4 teaspoon cayenne pepper
 Oil for frying (I like peanut or vegetable oil)
 
-Directions:
-In a cast iron skillet or deep pan, heat about 6 cups of oil to 350F (125C).
-Place cut okra in buttermilk to soak for a couple minutes while you assemble the coating.
-In a bowl, combine cornmeal, flour, and seasonings.
-Transfer okra to coating mixture and toss well to coat.
-Fry okra in hot oil for about 5 minutes, stirring to fry evenly.  
-Remove to paper towels to drain.
+1. Combine buttermilk and vinegar. Let sit for 5 minutes.
+2. In a cast iron skillet or deep pan, heat about 6 cups of oil to 350F (125C).
+3. Place cut okra in buttermilk to soak for a couple minutes while you assemble the coating.
+4. In a bowl, combine cornmeal, flour, and seasonings.
+5. Transfer okra to coating mixture and toss well to coat.
+6. Fry okra in hot oil for about 5 minutes, stirring to fry evenly.  
+7. Remove to paper towels to drain.
