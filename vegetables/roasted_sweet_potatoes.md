@@ -14,5 +14,5 @@
 
 ## Notes
 - Had trouble getting a zip lock bag to not float in the water bath. hmm.
-based on source: http://www.seriouseats.com/recipes/2010/11/the-best-roasted-sweet-potatoes-thanksgiving-sides-the-food-lab-recipe.html
+- based on source: http://www.seriouseats.com/recipes/2010/11/the-best-roasted-sweet-potatoes-thanksgiving-sides-the-food-lab-recipe.html and a similar version of the recipe in the Food Lab book
 
