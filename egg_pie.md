@@ -1,17 +1,21 @@
-6 slices bacon 
-5 eggs 
-1/2 cup milk 
-2 cups frozen hash brown potatoes thawed 
-1/3 cup chopped green onions 
-1 1/2 cups shredded Cheddar cheese, divided
+# Egg Pie
 
+## Ingredients
+- 9 eggs
+- 1/2 cup milk
+- 3 cups frozen has brown potatoes (thawed)
+- 1 1/2 cups monterey jack cheese, divided
+- 2 cups brocolli, branched and chopped
+- 1/2 cup onion
 
-Place bacon in a large, deep skillet. Cook over medium high heat until evenly brown. Drain, crumble, and set aside.
-Preheat oven to 350 degrees F (175 degrees C). Lightly grease a 7x11 inch baking dish.
-In a large bowl, beat together the eggs and milk. Stir in the bacon, hash browns, green onions, and 1 cup shredded Cheddar cheese. Pour into the prepared baking dish.
-Bake in the preheated oven 25 to 35 minutes, or until a knife inserted in the center comes out clean. Sprinkle the remaining Cheddar cheese on top, and continue baking for 3 to 4 minutes, or until the cheese is melted. Remove from oven, and let sit 5 minutes before serving.
+## Instructions
+1. In a large bowl, beat together the eggs and milk. Add salt and let sit while other ingredients are prepared.
+1. Combine all ingredients but reserve for cheese for on top.
+1. Pour into buttered pie pan and sprinkle remaining cheese on top.
+1. Bake in the preheated oven 25 to 35 minutes, until temperate is 165 - 185 in center.
+1. Remove from oven, and let sit on rack 5 minutes before serving
 
-http://allrecipes.com/recipe/20917/egg-and-hash-brown-pie/?clickId=right%20rail%201&internalSource=rr_feed_recipe&referringId=20917&referringContentType=recipe
+based on: http://allrecipes.com/recipe/20917/egg-and-hash-brown-pie/?clickId=right%20rail%201&internalSource=rr_feed_recipe&referringId=20917&referringContentType=recipe
 
 
 Think pie pan would cook it more evenly.
@@ -35,9 +39,7 @@ Asparagas Cheddar
  Broccoli Jack Ham
  6 slices black forest ham cut into chunks
  1 1/2 cups monterey jack
- 8 brocolli pieces cut into small chunks
- 2 green onions diced
-  2 cups hash browns
+ 12 brocolli pieces cut into small chunks
 
 
 
