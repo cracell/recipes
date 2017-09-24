@@ -20,7 +20,7 @@
 
 ## Instructions
 1. In a large pot over medium heat, melt butter and cook onion, and garlic in butter until slightly browned, 5 minutes. 
-1. Pour in chicken broth. Stir in chicken, noodles, carrots, spices, salt and pepper. Bring to a boil, then reduce heat 
-1. Simmer 20 minutes before serving.
+1. Pour in chicken broth. Stir in chicken, noodles, carrots, celery, spices, salt and pepper. Bring to a boil, then reduce heat to simmer.
+1. Simmer for 20 minutes before serving.
 
 based on: http://allrecipes.com/recipe/26460/quick-and-easy-chicken-noodle-soup/
