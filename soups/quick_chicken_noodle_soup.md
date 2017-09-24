@@ -3,16 +3,16 @@
 ## Ingredients
 - 1 tablespoon butter 
 - 1/2 medium onion, diced 
-- 2 cloves garlic, minced
+- 4 cloves garlic, minced
 
-- 5 medium celergy stalks, diced
+- 5 medium celery stalks, diced
 - 3 medium carrots, diced
 
 - 1 pound chopped cooked chicken breast 
 - 64oz chicken broth 
 - 1 1/2 cups egg noodles 
 - 1/4 teaspoon turmeric
-- 1/2 teaspoon ground Thyme (or fresh)
+- 1/2 teaspoon ground thyme (or fresh)
 - 1 teaspoon dried parsley (or fresh)
 - salt and pepper to taste
 - 1 bay leaf
