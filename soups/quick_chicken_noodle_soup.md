@@ -8,7 +8,7 @@
 - 5 medium celery stalks, diced
 - 3 medium carrots, diced
 
-- 1 pound chopped cooked chicken breast 
+- 1 pound chicken, cooked and diced
 - 64oz chicken broth 
 - 1 1/2 cups egg noodles 
 - 1/4 teaspoon turmeric
