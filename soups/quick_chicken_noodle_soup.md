@@ -16,7 +16,7 @@
 - 1 teaspoon dried parsley (or fresh)
 - 1/4 teaspoon pepper
 - 1 bay leaf
-- 1/2 teaspoon apple cider vinegar
+- 1 teaspoon apple cider vinegar
 - salt to taste
 
 ## Instructions
