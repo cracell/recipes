@@ -9,6 +9,7 @@
 - 1/2 cup onion
 
 ## Instructions
+1. Preheat oven to 350 degrees F
 1. In a large bowl, beat together the eggs and milk. Add salt and let sit while other ingredients are prepared.
 1. Combine all ingredients but reserve for cheese for on top.
 1. Pour into buttered pie pan and sprinkle remaining cheese on top.
@@ -26,7 +27,11 @@ pure cheddar cheese.
 little bit of pre-ground pepper inside.
 
 
-Filling combos
+## Filling combos
+### Spinach
+- 8 ounces frozen chopped spinach, defrosted and drained
+- 1 1/2 cups parmesan and/or romano
+
 
 Asparagas Cheddar
  2 green onions diced
