@@ -5,7 +5,7 @@
 - 2 tablespoons apple cider vinegar
 - 1/2 cup mayo
 - 1/4 teaspoon celery seed (optional, but AWESOME)
-- 1/2 teaspoon pepper
+- 1/4 teaspoon pepper
 - 1/4 teaspoon salt
 - 1 bag shredded cabbage.
 
