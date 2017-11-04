@@ -19,7 +19,7 @@
 ## Tips
 - The warmer the eggs and hash browns are the less time it will take to cook. Which can help prevent the edges from overcooking
 
-## Things that didn't work well
+## Things that don't work well
 - Using green onion doesn't taste great compared to white
 - Frozen spinach didn't taste great, fresh might be better
 
