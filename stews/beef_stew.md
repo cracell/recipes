@@ -1,6 +1,6 @@
 ## Ingredients
 
-- 3 pounds boneless beef chuck (well-marbled), cut into 1-1/2-inch pieces
+- 1 pound stew meat (beef chuck - well-marbled), cut into 1-1/2-inch pieces
 - 2 teaspoons salt
 - 1 teaspoon freshly ground black pepper
 - 3 tablespoons olive oil
