@@ -20,7 +20,8 @@
 - 1/2 jalapeno chopped finely
 
 1. Preheat oven to 350 degrees F (175 degrees C).
-1. Add chicken to a large high skillet. Add the onion, sour cream, jalapeno, Cheddar cheese, parsley, oregano and ground black pepper. Heat until cheese melts. 
+1. Add onion and small amount of butter to skillet. Grill until onion softens (about 5 minutes)
+1. Add chicken, sour cream, jalapeno, Cheddar cheese, parsley, oregano and ground black pepper. Heat until cheese melts. 
 1. Stir in salt, half of enchilada sauce, chili powder, cayenne, green pepper, cilantro and garlic.
 1. Roll even amounts of the mixture in the tortillas. Arrange in a 9x13 inch baking dish. Cover with taco sauce and 3/4 cup Cheddar cheese. Bake uncovered in the preheated oven 20 minutes. Cool 10 minutes before serving.
 
