@@ -1,13 +1,13 @@
 # Butternut Squash and Sweet Potato Bisque
 
 ## Ingredients
-- 1 (2 pound) butternut squash - peeled, seeded, and cut into large chunks
-- 4 sweet potatoes, peeled and cut into chunks
-- 1 onion, peeled and chopped
-- 1 (2 inch) piece fresh ginger, peeled and finely chopped
+- 1 (1 pound) butternut squash - peeled, seeded, and cut into large chunks
+- 2 sweet potatoes, peeled and cut into chunks
+- 1/2 onion, peeled and chopped
+- 1 (1 inch) piece fresh ginger, peeled and finely chopped
 - 3 cloves garlic, peeled and chopped
-- 1 1/2 quarts water, or amount to cover
-- 1 cup plain yogurt, or amount desired (optional) (or cream)
+- 1 quarts water, or amount to cover
+- 1/2 cup plain yogurt, or amount desired (optional) (or cream)
 - salt and ground black pepper to taste
 
 ## Instructions
