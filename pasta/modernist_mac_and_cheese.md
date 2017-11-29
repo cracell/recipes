@@ -1,10 +1,10 @@
 # Mac and Cheese
 
 ## Ingredients
-240g/2 cups dry macaroni 84%
-265g/1⅛ cup milk 93%
-11g/2 teaspoons sodium citrate 4%
-285g/2 cups cheese, grated 100%
+- 240g/2 cups dry macaroni 84%
+- 265g/1⅛ cup milk 93%
+- 11g/2 teaspoons sodium citrate 4%
+- 285g/2 cups cheese, grated 100%
 
 ## Instructions
 1. Cook the macaroni according to package directions.
