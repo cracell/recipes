@@ -10,4 +10,9 @@
 1. Turn and apply more marinade or spices
 1. Continue cooking until 165-185, taste best near 185
 
-Based on: http://www.food.com/recipe/simple-baked-chicken-drumsticks-443758
+## Based On
+http://www.food.com/recipe/simple-baked-chicken-drumsticks-443758
+
+## Sides
+- Potatos (any style)
+- Coleslaw
