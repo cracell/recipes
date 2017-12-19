@@ -19,6 +19,6 @@
 - Add grated carrots or sliced sweet onions to cabbage for color and sweetness
 
 ## Ideas
-- Use greek yogurt instead of mayo
+- Use greek yogurt instead of mayo. Tried this with 0% fat greek yogurt. Was ok. Probably need to look at greek yogurt based recipes to see if there's a way to improve it.
 
 Based on: http://www.livingtraderjoes.com/how-to-make-easy-coleslaw/
