@@ -9,7 +9,7 @@ Servings: about 12
 - 3/4 cup milk (add until mixture leaves side of bowl)
 
 ## Instructions
-1. Preheat oven to 450F
+1. Preheat oven to 400F
 1. In a large bowl with a fork. Mix together flour, baking powder and salt.
 1. With a pastry blender cut in butter until the mixture resembles crumbs.
 1. Add milk and mix with fork until mixture forms soft dough that leaves side of bowl.
