@@ -3,7 +3,7 @@
 ## Ingredients
 - 1 Tablespoon sugar
 - 2 tablespoons apple cider vinegar
-- 1/2 cup mayo
+- 1/2 cup mayo (or 1 tablespoon olive oil)
 - 1/4 teaspoon celery seed (optional, but AWESOME)
 - 1/4 teaspoon pepper
 - 1/4 teaspoon salt
@@ -20,6 +20,5 @@
 
 ## Ideas
 - Use greek yogurt instead of mayo. Tried this with 0% fat greek yogurt. Was ok. Probably need to look at greek yogurt based recipes to see if there's a way to improve it.
-- Try subsituting mayo for 1 tablespoon of olive oil
 
 Based on: http://www.livingtraderjoes.com/how-to-make-easy-coleslaw/
