@@ -19,5 +19,8 @@
 Seal jar and refrigerate overnight.
 1. In the morning, stir in cinnamon, banana slices, peanut butter and berries.
 
+## Tips
+- Do not make more than 3 days in advance (according to https://www.organizeyourselfskinny.com/2014/11/20/overnight-oatmeal-tutorial-20-delicious-overnight-oats-recipes/)
+
 
 sources: https://www.reddit.com/r/EatCheapAndHealthy/comments/1vlu7k/overnight_refrigerator_steel_cut_oats_recipe/, https://thelemonbowl.com/overnight-refrigerator-steel-cut-oats/
