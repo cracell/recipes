@@ -21,6 +21,6 @@ Seal jar and refrigerate overnight.
 
 ## Tips
 - Do not make more than 3 days in advance (according to https://www.organizeyourselfskinny.com/2014/11/20/overnight-oatmeal-tutorial-20-delicious-overnight-oats-recipes/)
-
+- Best on Day one or two (according to https://www.thekitchn.com/this-is-how-long-overnight-oats-will-last-in-the-fridge-248415)
 
 sources: https://www.reddit.com/r/EatCheapAndHealthy/comments/1vlu7k/overnight_refrigerator_steel_cut_oats_recipe/, https://thelemonbowl.com/overnight-refrigerator-steel-cut-oats/
