@@ -2,14 +2,15 @@
 
 ## Ingredients
 ### For Step 1
-- 1/4 c steel cut oats (or rolled oats)
-- 1/4 c greek yogurt
-- 1/2 c milk
-- 1 tbs flax seed meal
+- 45g (1/4 c) steel cut oats (or rolled oats)
+- 22g greek yogurt
+- 110g (1/2 c) milk
+- 6g (1 tbs) flax seed meal
 - 1 pinch salt
+- 1/2 tsp cinnamon
 
 ### For Step 2
-- 1/2 tsp cinnamon
+
 - 1/3 banana sliced
 - 1/2 tbs natural peanut butter
 - 1/4 c berries of choice
