@@ -19,8 +19,7 @@ Servings: 4
 ## Directions
 1. Chop garlic and onions and let sit for 5 minutes to bring out their hidden health benefits.
 1. Heat 1 TBS broth in a medium soup pot.
-1. Healthy Sauté onion in broth over medium heat for about 5 minutes stirring frequently.
-1. Add garlic and continue to sauté for another minute.
+1. Healthy Sauté garlic and onion in broth over medium heat for about 5 minutes stirring frequently.
 1. Add broth, carrots, and celery and bring to a boil on high heat.
 1. Once it comes to a boil reduce heat to a simmer and continue to cook for another 5 minutes. 
 1. Add potatoes and cook until tender, about 15 more minutes.
