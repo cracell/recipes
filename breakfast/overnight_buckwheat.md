@@ -1,10 +1,10 @@
 # Overnight Buckwheat Groats
 
 
-- ½ cup raw buckwheat groats (not the same as Kasha)
-- ¾ cup almond milk
+- 90 grams (½ cup) raw buckwheat groats (not the same as Kasha)
+- 160 grams (¾ cup) almond milk
 - 2 Tablespoons chia seeds
-- 1Tablespoon maple syrup or your favorite sweetener
+- 16 grams (1 Tablespoon) maple syrup or your favorite sweetener
 - 1 teaspoon ground cinnamon
 - ¼ teaspoon vanilla extract
 - 1 banana, diced
