@@ -4,7 +4,7 @@
 ### For Step 1
 - 45g (1/4 c) steel cut oats (or rolled oats)
 - 22g greek yogurt
-- 110g (1/2 c) milk
+- 110g (1/2 c) milk or almond milk
 - 6g (1 tbs) flax seed meal
 - 1 pinch salt
 - 1/2 tsp cinnamon
@@ -22,6 +22,7 @@ Seal jar and refrigerate overnight.
 
 ## Variations
 - https://i.imgur.com/XpbOrCF.png
+- Tried adding 10 grams of pea protein isolate and increasing liquid to 115 grams with almond milk
 
 ## Tips
 - Do not make more than 3 days in advance (according to https://www.organizeyourselfskinny.com/2014/11/20/overnight-oatmeal-tutorial-20-delicious-overnight-oats-recipes/)
