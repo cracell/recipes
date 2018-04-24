@@ -2,12 +2,13 @@
 
 ## Ingredients
 ### For Step 1
-- 45g (1/4 c) steel cut oats (or rolled oats)
-- 22g greek yogurt
-- 110g (1/2 c) milk or almond milk
+- 55g steel cut oats
+- 27g greek yogurt
+- 128g almond milk
 - 6g (1 tbs) flax seed meal
 - 1 pinch salt
-- 1/2 tsp cinnamon
+- 1/2 tsp (heaping) cinnamon
+- honey to taste
 
 ### For Step 2
 
