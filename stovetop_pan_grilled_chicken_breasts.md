@@ -1,4 +1,4 @@
-Stovetop Pan Grilled Chicken Breasts
+# Stovetop Pan Grilled Chicken Breasts
 
 Pound or cut chicken into even thickness, marinade or spice overnight or hours ahead
 
@@ -21,29 +21,30 @@ Source: pieces taken from various recipes
 
 
 
-Marinades
+## Marinades
 
-Mexican Style
-2lbs Chicken Tenders
-1/3 cup Taco seasoning 
-1/4 cup olive oil
-Combine in plastic bag
+- Mexican Style
+- 2lbs Chicken Tenders
+- 1/3 cup Taco seasoning 
+- 1/4 cup olive oil
 
 Or
-1lbs Chicken tenders
-3 tablespoons Taco Seasoning
-2 tablespoons olive oil
+- 1 lbs Chicken tenders
+- 3 tablespoons Taco Seasoning
+- 2 tablespoons olive oil
 
 
 
 ### Basil Pesto Pasta Topping Style
-1lb Chicken tenders
-3 garlic cloves minced
-1 teaspoon basil
-1 teaspoon parsley
-1/2 teaspoon salt
-1/2 teaspoon pepper
-2 tablespoons olive oil
+- 1lb Chicken tenders
+- 3 garlic cloves minced
+- 1 teaspoon basil
+- 1 teaspoon oregano
+- 1 teaspoon parsley
+- 1/2 teaspoon salt
+- 1/2 teaspoon pepper
+- 2 tablespoons olive oil
+- 2 tablespoons balsamic vinegar
 
 
 
