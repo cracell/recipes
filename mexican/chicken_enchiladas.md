@@ -18,6 +18,8 @@
 - 1 (12 ounce) jar taco sauce
 - 3/4 cup shredded Cheddar cheese
 - 1/2 jalapeno chopped finely
+- cilantro!
+- olives
 
 1. Preheat oven to 350 degrees F (175 degrees C).
 1. Add onion and small amount of butter to skillet. Grill until onion softens (about 5 minutes)
