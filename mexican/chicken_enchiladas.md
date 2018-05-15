@@ -1,8 +1,8 @@
 # Chicken Enchiladas
 
 ## Ingredients
-- 4 skinless, boneless chicken breast halves cooked and shredded (use another recipe for this)
-- 1 onion, chopped
+- 2 pounds of chicken cooked and diced/shredded skinless (use another recipe for this)
+- 1 onion, chopped into thin strips
 - 1 cup sour cream
 - 1 cup shredded Cheddar cheese
 - 1 tablespoon dried parsley
@@ -10,14 +10,13 @@
 - 1/2 teaspoon cayenne
 - 1/2 teaspoon ground black pepper
 - 1/2 teaspoon salt
-- 1 can (10 oz) La Preferida Enchilada Sauce (Hot or Mild) 
+- 1 can (28 oz) La Preferida Enchilada Sauce (Hot or Mild) 
 - 1 tablespoon chili powder
-- 1/3 cup chopped green bell pepper
-- 3 clove garlic, minced
+- 4 bell peppers, cut into thin strips
+- 6 clove garlic, minced
 - 8 (10 inch) flour tortillas
-- 1 (12 ounce) jar taco sauce
 - 3/4 cup shredded Cheddar cheese
-- 1/2 jalapeno chopped finely
+- 2 jalapenos chopped finely
 - cilantro!
 - olives
 
