@@ -25,4 +25,6 @@
 1. Sprinkle with flour; stir with wooden spoon until flour is dissolved, 1-2 minutes. 
 1. Add beer, beef broth, bay leaf and sugar; stir with wooden spoon to loosen any brown bits from bottom of pan and bring to a boil. 
 1. Cover pot with lid, simmer on medium low heat for 25 min.
-1. Add carrots, celery and potatoes. Cover and cook until vegetables are cooked and meat is very tender. Taste and adjust seasoning if necessary (freshly ground black pepper and a pinch of sugar go a long way). This stew improves in flavor if made at least 1 day ahead. 
+1. Add carrots, celery and potatoes. 
+1. Cover and cook until vegetables are cooked and meat is very tender. About 10-15 minutes
+1. Taste and adjust seasoning if necessary (freshly ground black pepper and a pinch of sugar go a long way). This stew improves in flavor if made at least 1 day ahead. 
