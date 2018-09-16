@@ -1,4 +1,7 @@
 # Eric's Chili
+- Cook time - 2 hours
+- Prep time - 30 minutes
+- Total time 2 hours 30 minutes
 
 ## Ingredients
 - 6 Dried Guajillo Chili Pods
@@ -20,7 +23,7 @@
 - Green onions diced
 - cheddar cheese
 
-## Ingredients
+## Instructions
 1. Cut up dried chili peppers and simmer dried chili peppers in beer untill soft. (Or you can grind them using a coffee grinder)
 1. Cut up chuck roast into chili sized chunks. Sear one side of them. Grind on some salt and pepper while searing, only sear one side to leave them nice and tender but with the mallard effect for added taste.
 1. Once dried chili peppers are soft blend them using a food processor or immersion blender.
