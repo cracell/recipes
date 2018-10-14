@@ -7,7 +7,7 @@
 - 1/2 medium white onion, cut into 1-inch chunks
 - 6 cloves garlic, peeled and smashed
 - 2 tablespoons balsamic vinegar
-- 1/2 cup all-purpose flour
+- 1/3 cup all-purpose flour
 - 2 cups dark beer
 - 4 cups (32 ounces) beef broth 
 - 1 bay leaf
