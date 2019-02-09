@@ -3,6 +3,7 @@ Prep and Cook Time: Prep and cooking time: 40 minutes
 Servings: 4
 
 ## Ingredients
+- 1 pound diced chicken, pre cooked (season like chicken noodle soup)
 - 1 medium onion, chopped
 - 4 cloves garlic, chopped
 - 5 cups chicken or vegetable broth
