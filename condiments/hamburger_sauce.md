@@ -1,10 +1,10 @@
 # Shake Shack Hamburger Sauce
 
 ## Ingredients
-- 1/2 cup mayonnaise
-- 1 tablespoon ketchup
-- 1 tablespoon yellow mustard
-- 4 slices kosher dill pickle minced
+- 100g (1/2 cup) mayonnaise
+- 15g (1 tablespoon) ketchup
+- 15 (1 tablespoon) yellow mustard
+- 10g relish or 4 slices kosher dill pickle minced
 - 1/4 teaspoon garlic powder
 - 1/4 teaspoon paprika
 - Pinch cayenne pepper
