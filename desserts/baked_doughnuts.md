@@ -38,5 +38,6 @@ Yield: enough glaze for 20 to 25 doughnuts
 - Can make night before, get out of refrigerator an hour before cooking
 - Don't overknead, makes them to chewy and hard to roll out
 - Halve the recipe normally
+- First time making, came out more like sweet dough, probably due to overkneading. And didn't roll them thin enough.
 
 based on: https://www.melskitchencafe.com/baked-doughnuts/, https://www.foodnetwork.com/recipes/alton-brown/doughnut-glaze-recipe-1915369
