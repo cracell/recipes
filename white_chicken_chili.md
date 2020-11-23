@@ -13,6 +13,7 @@ White Chicken Chili
 - ½ tsp Smoked Paprika
 - 1 Tbl Cumin
 - 2 Chicken Breasts, large dice
+- 1 diced potato
 - 1 Zucchini, quarter lengthwise and slice thick
 - Salt, Pepper and Cumin, to taste
 - Cilantro for garnish
@@ -20,7 +21,7 @@ White Chicken Chili
 1. In a large pot on medium high heat, add oil and sauté onion, jalapeño pepper, and carrots until onions become translucent.
 2. Reduce to low heat, add beer, broth, garlic and spices and bring to a simmer.
 3. Add chicken and simmer for 15 minutes.
-4. Add zucchini 
+4. Add zucchini and potato 
 5. Continue to simmer for one hour.
 6. Season to taste and serve with garnish.
 
