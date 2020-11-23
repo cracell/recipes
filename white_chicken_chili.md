@@ -9,9 +9,9 @@ White Chicken Chili
 - 6 oz Beer (Brown Ale works well)
 - 2 cups Vegetable Broth (or chicken broth)
 - 1 tsp Chili Powder
-- ½ tsp Paprika
+- 1½ tsp Paprika
 - ½ tsp Smoked Paprika
-- 1 Tbl Cumin
+- 1 Tbl 1 teaspoo Cumin
 - 2 Chicken Breasts, large dice
 - 1 diced potato
 - 1 Zucchini, quarter lengthwise and slice thick
@@ -28,3 +28,5 @@ White Chicken Chili
 Based on: http://www.reddit.com/r/food/comments/10nyya/white_chicken_chili_and_home_made_cheddar_corn/
 
 Goes well with corn bread.
+
+Could add more
