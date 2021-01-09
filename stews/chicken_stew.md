@@ -22,11 +22,8 @@
   - 1 1/2 cups potatoes peeled and diced
   - 1 1/2 cups sweet potatoes peeled and diced
 - Step 6
-  - 1/3 cup heavy cream
-  - several handfuls of kale
-- Step 7
-  - 1 cup snap peas or kale
   - 1/4 cup heavy cream
+  - 1 cup snap peas or kale
 
 ## Instructions
 1. In a large pot or dutch oven, brown chicken in 1 tablespoon olive oil (it doesn't have to be cooked through).
