@@ -10,11 +10,14 @@
 - 1/2 tsp (heaping) cinnamon
 - honey to taste
 
-### For Step 2
+### For Step 2 (choose a few)
 
 - 1/3 banana sliced
 - 1/2 tbs natural peanut butter
 - 1/4 c berries of choice
+- chia seeds
+- chocolate chips
+- apple
 
 ## Instructions
 1. Combine oats, yogurt, milk, flax and pinch of salt in a glass jar and stir well.
