@@ -8,11 +8,12 @@
 - 2 tablespoons distilled white vinegar
 
 ### Salad
-- 2 hard-boiled eggs, roughly chopped
+- 2-3 hard-boiled eggs, roughly chopped
 - 1/4 cup finely diced red onion
 - 1 pickle diced
+- 1 tablespoon pickle juice
 - 1 teaspoon kosher or sea salt, or more to taste
-- 1/4 - 1/2 cup mayonnaise
+- 1/4 - 1/2 cup mayonnaise (some say as high as 2 cups?!)
 - 2 teaspoons mustard (go light for Candle)
 - 1/2 teaspoon freshly ground black pepper, or more to taste
 
