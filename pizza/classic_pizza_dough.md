@@ -11,8 +11,7 @@ Easy for a yeast bread
 - 218 grams (1 cup) lukewarm water
 - 8 grams, 1 1/4 teaspoons salt
 - 8.7 grams (2 teaspoons) sugar
-- 1 tablespoon melted butter
-- 13.4 grams (1 tablespoon) olive oil
+- 18.2 grams (1 tablespoon nd 2 teaspoons) olive oil
 - 375 grams (3 cups) King Arthur Unbleached All-Purpose Flour
 
 1. If you're using active dry yeast, dissolve it, with a pinch of sugar, in 2 tablespoons of the 100F - 110F water. Let the yeast and water sit at room temperature for 15 minutes, until the mixture has bubbled and expanded. If you're using instant yeast, you can skip this step.
