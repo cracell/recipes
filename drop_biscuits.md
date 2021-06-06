@@ -14,4 +14,4 @@ Servings: about 12
 1. With a pastry blender cut in butter until the mixture resembles crumbs.
 1. Add milk and mix with fork until mixture forms soft dough that leaves side of bowl.
 1. Drop heaping tablespoons onto an ungreased cookie sheet.
-1. Bake for 10-15 minutes. Until golden brown on very bottom and white but not doughy on top. In a small oven bake on top rack to prevent bottoms from burning.
+1. Bake for 15-20 minutes. Until golden brown on very bottom and white but not doughy on top. In a small oven bake on top rack to prevent bottoms from burning.
