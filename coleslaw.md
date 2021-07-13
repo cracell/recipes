@@ -3,7 +3,7 @@
 ## Ingredients
 - 1 Tablespoon sugar
 - 2 tablespoons apple cider vinegar
-- 1/2 cup mayo (or 1 tablespoon olive oil)
+- 1/4 cup mayo (or 1 tablespoon olive oil)
 - 1/4 teaspoon celery seed (optional, but AWESOME)
 - 1/4 teaspoon pepper
 - 1/4 teaspoon salt
