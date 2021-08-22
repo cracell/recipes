@@ -3,10 +3,10 @@ Prep and Cook Time: Prep and cooking time: 40 minutes
 Servings: 4
 
 ## Ingredients
-- 1 pound diced chicken, pre cooked (season like chicken noodle soup)
+- 1.5 pounds diced chicken, pre cooked (season like chicken noodle soup)
 - 1 medium onion, chopped
 - 4 cloves garlic, chopped
-- 5 cups chicken or vegetable broth
+- 4 cups chicken or vegetable broth
 - 1 medium carrot, diced into 1/4-inch cubes (about 1 cup)
 - 1 cup diced celery
 - 3 russet potatoes, diced into 1/2-inch cubes
@@ -26,4 +26,4 @@ Servings: 4
 1. Add kale and rest of ingredients and cook another 5 minutes. If you want to simmer for a longer time for extra flavor and richness, you may need to add a little more broth.
 
 
-source: http://whfoods.org/genpage.php?tname=recipe&dbid=214
+modified from source: http://whfoods.org/genpage.php?tname=recipe&dbid=214
