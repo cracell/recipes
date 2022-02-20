@@ -1,4 +1,5 @@
 # Oatmeal Cookies
+- Makes 16 cookies
 
 ## Ingredients
 - 1/3 cup honey or maple syrup can use 1/2 cup for sweeter cookies
