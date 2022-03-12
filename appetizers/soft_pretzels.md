@@ -7,7 +7,7 @@
 - 2 teapsons / 6 grams kosher salt
 - 2 1/4 tsp. / 7 grams active dry yeast
 - 630 grams all-purpose flour
-- 56 grams unsalted butter (melted)
+- 4 tablspoons / 56 grams unsalted butter (melted)
 - 10 cups water for boiling
 - 190 grams baking soda
 - 1 egg yolk, beaten with 1 tablespoon water
