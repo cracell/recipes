@@ -1,26 +1,26 @@
-Power Cookies
+# Power Cookies
 YIELD: MAKES ABOUT 20 TO 22 COOKIES, DEPENDING ON YOUR SCOOP TOTAL TIME: 45 MINTUES
-ingredients:
-3 cups old-fashioned rolled oats
-1 1/2 cups (185grams) unbleached organic all-purpose flour
-5 tablespoons (37.5 grams) brewers yeast
-3 tablespoons (18 grams) ground flaxseed
-1/2 teaspoon (1.9 grams) baking powder
-1/2 teaspoon (2.3 grams) baking soda
-1/2 teaspoon (1 grams) ground cinnamon
-1/4 teaspoon (1.4 grams) salt
-12 tablespoons organic unsalted butter
-1/4 cup (57.6 grams) unrefined organic virgin coconut oil
-1 1/2 cups (320 grams) organic cane sugar (they are too sweet, try reducing to 1 1/4 cup)
-1 large egg + 1 large egg yolk
-2 teaspoons vanilla extract
-1 1/2 cups raisins
-4 tablespoons chia seeds
+
+## Ingredients
+- 3 cups old-fashioned rolled oats
+- 1 1/2 cups (185grams) unbleached organic all-purpose flour
+- 5 tablespoons (37.5 grams) brewers yeast
+- 3 tablespoons (18 grams) ground flaxseed
+- 1/2 teaspoon (1.9 grams) baking powder
+- 1/2 teaspoon (2.3 grams) baking soda
+- 1/2 teaspoon (1 grams) ground cinnamon
+- 1/4 teaspoon (1.4 grams) salt
+- 12 tablespoons organic unsalted butter
+- 1/4 cup (57.6 grams) unrefined organic virgin coconut oil
+- 1 1/4 cups (266 grams) organic cane sugar
+- 1 large egg + 1 large egg yolk
+- 2 teaspoons vanilla extract
+- 1 1/2 cups raisins
+- 4 tablespoons chia seeds
 
 feel free to add: unsweetened flaked coconut, chopped almonds, 1 to 2 tablespoons of almond butter
-2 tablespoons chia seeds
 
-directions:
+## Directions
 
 1. Preheat the oven the 350 degrees F.
 2. In a large bowl, whisk together the oats, flour, yeast, flaxseed, baking powder, soda, cinnamon and salt.
@@ -33,6 +33,8 @@ directions:
 9. Scoop the dough into 1-inch rounds (I use an ice cream scoop so they are fairly uniform in size) and place on a baking sheet about 2 inches apart. 
 10. Bake for 10 to 14 minutes, or until the bottoms are just golden. Let cool completely before storing in a sealed container. They stay chewy when you don't overcook them.
 
+
+## Tips
 1. You can easily freeze this dough - scoop the rounds on a baking sheet, place the sheet in the freezer for 2 hours, then place the dough rounds in a ziplock bag and store in the freezer. Bake at the same temp - they may or may not need an extra minute or 2 - your preference!
 2. You can use all butter if you don't have/can't find coconut oil. If you swap any butter amount for more coconut oil, the cookies will spread a bit more. If you decrease the fat (butter/oil) amount in total, these cookies will be drier. It's up to you!
 3. You can use 1/2 cup of whole wheat flour with similar results - any more and the cookies with be drier and grittier.
@@ -43,5 +45,3 @@ directions:
 
 
 source: http://www.howsweeteats.com/2015/02/lactation-cookies/
-
-Weights came from uncalibrated scale. Disagreed with wolfram alpha numbers. hmm.
