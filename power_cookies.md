@@ -16,7 +16,7 @@ YIELD: MAKES ABOUT 20 TO 22 COOKIES, DEPENDING ON YOUR SCOOP TOTAL TIME: 45 MINT
 - 1 large egg + 1 large egg yolk
 - 2 teaspoons vanilla extract
 - 1 1/2 cups raisins
-- 4 tablespoons chia seeds
+- 4 tablespoons (40 grams) chia seeds
 
 feel free to add: unsweetened flaked coconut, chopped almonds, 1 to 2 tablespoons of almond butter
 
