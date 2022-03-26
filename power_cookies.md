@@ -2,7 +2,7 @@
 YIELD: MAKES ABOUT 20 TO 22 COOKIES, DEPENDING ON YOUR SCOOP TOTAL TIME: 45 MINTUES
 
 ## Ingredients
-- 3 cups old-fashioned rolled oats
+- 3 cups (365 grams) old-fashioned rolled oats
 - 1 1/2 cups (185grams) unbleached organic all-purpose flour
 - 5 tablespoons (37.5 grams) brewers yeast
 - 3 tablespoons (18 grams) ground flaxseed
