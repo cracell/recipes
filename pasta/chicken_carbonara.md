@@ -19,6 +19,7 @@
 
 ### Mixins
 - 2 cups peas, snap peas, or green beans
+- 1 bunch of Italian Parsley, leaves diced
 
 
 ## Steps
@@ -35,6 +36,6 @@
 ### Combine
 1. Cook noodles in pot, reserve 2 cups of liquid before draining
 2. Drain
-3. Combine chicken, sauce and veggies with noodles. Heat if sauce does not cook. Add water to thin sauce
+3. Combine chicken, parsley, sauce and veggies with noodles. Heat if sauce does not cook. Add water to thin sauce
 
 based on: https://www.allrecipes.com/recipe/232865/loaded-chicken-carbonara/ 
