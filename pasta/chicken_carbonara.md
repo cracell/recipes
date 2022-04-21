@@ -12,13 +12,14 @@
 - 1 ½ cups grated Parmesan cheese
 - 1 egg
 - 2 egg yolks
+- red pepper flakes to taste
 
 ### Spaghetti
 1 gallon water
 1 pound spaghetti
 
 ### Mixins
-- 2 cups peas, snap peas, or green beans
+- 2 cups peas, snap peas, sweet peppers or green beans
 - 1 bunch of Italian Parsley, leaves diced
 
 
