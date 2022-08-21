@@ -1,7 +1,7 @@
 # Granola
 
 ## Ingredients
-- 3 cups old-fashioned rolled oats
+- 250 grams old-fashioned rolled oats
 - 1/2 teaspoon ground cinnamon 
 - 30 grams brewers yeast
 - 30 grams ground flaxseed
