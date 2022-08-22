@@ -22,7 +22,7 @@
 - 3/4 cup (100 grams) raisins
 
 
- Bake for 30 or 40 minutes -- at a low temperature (about 325° F)
+ Bake for 40 or 50 minutes -- at a low temperature (about 300° F)
  - Don't stir!
  
  
