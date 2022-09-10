@@ -7,19 +7,18 @@ YIELD: MAKES ABOUT 20 TO 22 COOKIES, DEPENDING ON YOUR SCOOP TOTAL TIME: 45 MINT
 - 1 1/2 cups (185grams) unbleached organic all-purpose flour
 - 5 tablespoons (37.5 grams) brewers yeast
 - 3 tablespoons (18 grams) ground flaxseed
-- 4 tablespoons (40 grams) chia seeds
-- 1/2 teaspoon (1.9 grams) baking powder
-- 1/2 teaspoon (2.3 grams) baking soda
+- 4 tablespoons (40 grams) ground chia seeds
+- 1 teaspoon baking powder
 - 1/2 teaspoon (1 grams) ground cinnamon
 - 1/4 teaspoon (1.4 grams) salt
 
 ### Remaining Ingredients
-- 150 grams Ghee or 12 tablespoons organic unsalted butter
-- 1/4 cup (57.6 grams) unrefined organic virgin coconut oil
+- 100 grams Ghee or unsalted butter
+- 110 grams unrefined organic virgin coconut oil
 - 1/2 cup 2 tablespoons (133 grams) organic cane sugar
 - 1 large egg + 1 large egg yolk
 - 2 teaspoons vanilla extract
-- 1 1/2 cups(200 grams) raisins
+- 120 grams unsweetened cranberries 
 
 
 feel free to add: unsweetened flaked coconut, chopped almonds, 1 to 2 tablespoons of almond butter
