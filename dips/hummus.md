@@ -3,7 +3,7 @@
 ## Ingredients
 - 1 (15-ounce) can chickpeas or 1 ½ cups (250 grams) cooked chickpeas
 - 1/4 cup (60 ml) fresh lemon juice, 1 large lemon
-- 1/4 cup (60 ml) well-stirred tahini, see our homemade tahini recipe
+- 65 grams (1/4 cup) well-stirred tahini
 - 1 small garlic clove, minced
 - 2 tablespoons (30 ml) extra-virgin olive oil, plus more for serving
 - 1/2 teaspoon ground cumin
