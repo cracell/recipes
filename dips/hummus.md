@@ -5,7 +5,7 @@
 - 1/4 cup (60 ml) fresh lemon juice, 1 large lemon
 - 65 grams (1/4 cup) well-stirred tahini
 - 1 small garlic clove, minced
-- 2 tablespoons (30 ml) extra-virgin olive oil, plus more for serving
+- 18 grams (2 tablespoons) extra-virgin olive oil, plus more for serving
 - 1/2 teaspoon ground cumin
 - Salt to taste
 - 2 to 3 tablespoons (30 to 45 ml) water
