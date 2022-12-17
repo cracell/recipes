@@ -13,8 +13,8 @@ YIELD: MAKES ABOUT 20 TO 22 COOKIES, DEPENDING ON YOUR SCOOP TOTAL TIME: 45 MINT
 - 1/4 teaspoon (1.4 grams) salt
 
 ### Remaining Ingredients
-- 100 grams Ghee or unsalted butter
-- 110 grams unrefined organic virgin coconut oil
+- 60 grams Ghee or unsalted butter
+- 150 grams unrefined organic virgin coconut oil
 - 1/2 cup 2 tablespoons (133 grams) organic cane sugar
 - 1 large egg + 1 large egg yolk
 - 2 teaspoons vanilla extract
