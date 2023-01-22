@@ -3,9 +3,10 @@
 ## Ingredients
 
 ### Dry mix (for 130 grams total
-- 86 g whole wheat flour
-- 24 g Buttermilk powder
-- 16 g vital wheat gluten
+- 73 g whole wheat flour
+- 45 g Buttermilk powder
+- 8 g vital wheat gluten
+- 1 teaspoon cane sugar
 - 1/2 teaspoon (3g) baking powder
 - 1/4th teaspoon (1.5g) salt
 
