@@ -26,7 +26,7 @@
 1. Stir in salt, half of enchilada sauce, chili powder, cayenne, green pepper, cilantro and garlic.
 1. Roll even amounts of the mixture in the tortillas. Arrange in a 9x13 inch baking dish. Cover with taco sauce and 3/4 cup Cheddar cheese. Bake uncovered in the preheated oven 20 minutes. Cool 10 minutes before serving.
 
-Add some Cilantro on top. And olives on half (only half for Candle :) )
+Add some Cilantro on top. And olives
 
 Based on http://allrecipes.com/Recipe/Chicken-Enchiladas-I/Detail.aspx
 
