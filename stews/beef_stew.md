@@ -8,7 +8,7 @@
 - 6 cloves garlic, peeled and smashed
 - 2 tablespoons balsamic vinegar
 - 1/3 cup all-purpose flour
-- 2 cups dark beer
+- 2 cups dark beer (Bitburger Pilsner)
 - 4 cups (32 ounces) beef broth 
 - 1 bay leaf
 - 1-1/2 teaspoons brown sugar
