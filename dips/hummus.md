@@ -4,7 +4,7 @@
 - 1 (15-ounce) can chickpeas or 1 ½ cups (250 grams) cooked chickpeas
 - 1/4 cup (60 ml) fresh lemon juice, 1 large lemon
 - 65 grams (1/4 cup) well-stirred tahini
-- 4 medium garlic cloves, minced
+- 6-8 medium garlic cloves, minced
 - 18 grams (2 tablespoons) extra-virgin olive oil, plus more for serving
 - 1/2 teaspoon ground cumin
 - Salt to taste
