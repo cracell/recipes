@@ -4,18 +4,19 @@ YIELD: MAKES ABOUT 20 TO 22 COOKIES, DEPENDING ON YOUR SCOOP TOTAL TIME: 45 MINT
 ## Ingredients
 ### Step 2 Ingredients
 - 3 cups (365 grams) old-fashioned rolled oats
-- 1 1/2 cups (185grams) unbleached organic all-purpose flour
+- 1 1/2 cups (185 grams) unbleached organic all-purpose flour
 - 5 tablespoons (40 grams) brewers yeast
 - 3 tablespoons (30 grams) ground flaxseed
 - 4 tablespoons (40 grams) ground chia seeds
-- 1 teaspoon baking powder
+- 1 1/8 teaspoon baking powder
 - 1/4 teaspoon (1.4 grams) salt
 
 ### Remaining Ingredients
 - 60 grams Ghee or unsalted butter
 - 150 grams unrefined organic virgin coconut oil
-- 1/2 cup 2 tablespoons (133 grams) organic cane sugar
-- 1 large egg + 1 large egg yolk
+- 65 grams organic cane sugar
+- 3 tablespoons honey
+- 2 large eggs
 - 1 teaspoons vanilla extract
 - 120 grams unsweetened cranberries 
 
