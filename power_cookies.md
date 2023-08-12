@@ -14,8 +14,8 @@ YIELD: MAKES ABOUT 20 TO 22 COOKIES, DEPENDING ON YOUR SCOOP TOTAL TIME: 45 MINT
 ### Remaining Ingredients
 - 60 grams Ghee or unsalted butter
 - 150 grams unrefined organic virgin coconut oil
-- 65 grams organic cane sugar
-- 3 tablespoons honey
+- 60 grams organic cane sugar
+- 45 grams honey
 - 2 large eggs
 - 1 teaspoons vanilla extract
 - 120 grams unsweetened cranberries 
