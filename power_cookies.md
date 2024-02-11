@@ -16,7 +16,7 @@ YIELD: MAKES ABOUT 20 TO 22 COOKIES, DEPENDING ON YOUR SCOOP TOTAL TIME: 45 MINT
 - 150 grams unrefined organic virgin coconut oil
 - 60 grams organic cane sugar
 - 45 grams honey
-- 2 large eggs
+- 3 large eggs
 - 1 teaspoons vanilla extract
 - 120 grams unsweetened cranberries 
 
