@@ -1,15 +1,15 @@
 # Air Fryer Chicken Strips
 
 ## Ingredients
-- 1 1/4 pounds boneless skinless chicken tenders
+- 1 1/4 pounds boneless skinless chicken tenders cut in half down the middle
 - 1/2 cup white flour
 - 1/2 teaspoon salt
 - 1/4 teaspoon pepper
-- 1/4 teaspoons garlic powder
-- 1/4 teaspoon paprika
+- 1/2 teaspoons garlic powder
+- 1/2 teaspoon paprika
 - 1 cup Panko breadcrumbs
 - 2/3 cup Parmesan cheese, freshly grated
-
+- 2 eggs
 - oil spray
 
 ## Instructions
