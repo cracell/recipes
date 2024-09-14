@@ -10,6 +10,15 @@
 - 1/2 tsp (heaping) cinnamon
 - honey to taste
 
+or
+- 55g oats
+- 100g water
+- splash of milk
+- 1 tsp cinnamon
+- 7g honey
+- 14g pb2
+
+
 ### For Step 2 (choose a few)
 
 - 1/3 banana sliced
