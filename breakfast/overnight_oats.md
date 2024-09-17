@@ -16,7 +16,7 @@ or
 - splash of milk
 - 1 tsp cinnamon
 - 7g honey
-- 14g pb2
+- 20g pb2
 
 
 ### For Step 2 (choose a few)
